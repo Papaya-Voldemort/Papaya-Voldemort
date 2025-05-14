@@ -6,12 +6,12 @@ I blend the dark arts with a sunny disposition, and I’m here to leave my mark 
 
 ## Fun Facts About Me:
 - **Dark Wizard** 🖤: Yes, I’m Voldemort, but I’ve traded snakes for papayas.  
-- **Tropical Vibes** 🌴: When I’m not casting spells, I’m sipping a piña colada under the sun.  
+- **Tropical Vibes** 🌴: When I’m not casting spells, I’m enjoying a fresh smoothie under the sun.  
 - **Coding Sorcerer** 🧑‍💻✨: My spells now include Python scripts and JavaScript incantations.  
 
 ## Interests:
 - **Magical Gardening** 🌱: Experimenting with enchanted papaya trees.  
-- **Code Alchemy** 💻⚡: Turning bugs into features and coffee into brilliance.  
+- **Code Alchemy** 💻⚡: Turning bugs into features and creativity into brilliance.  
 - **World Domination** 🌍: Just kidding… or am I? 👀  
 
 ## Motto:
